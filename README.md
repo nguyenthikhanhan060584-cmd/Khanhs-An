@@ -1,2 +1,1 @@
-# Khanhs-An
-My GitHub Profile
+# Chào! Tôi là Khánh An 
